@@ -1,4 +1,4 @@
-# Who will win the CHESS CANDIDATES TOURNAMENT 2024:smiley:?
+# Who will win the CHESS CANDIDATES TOURNAMENT 2024 &#x1F60A?
 
 ## Some of questions I am trying to answer:
 1. Chances of an Indian player winning the candidate?
